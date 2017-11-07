@@ -1,1 +1,1 @@
-# testRepo
+http://agoetc.hateblo.jp/
